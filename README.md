@@ -1,4 +1,4 @@
-# Shefali Shrivastava (she/her) 🌟
+# Shefali Shrivastava (she/her) 🔆
 
 ## Tech Stack 🚀
 
